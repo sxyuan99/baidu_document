@@ -21,3 +21,6 @@ https://www.jianshu.com/p/47696e3aa4a1
 
 豆瓣：
 https://www.douban.com/note/717821995/
+
+大哥帮帮忙，sxyuan99@qq.com  by:1024
+https://wenku.baidu.com/view/e3484a2cc281e53a5802ff4e.html 
